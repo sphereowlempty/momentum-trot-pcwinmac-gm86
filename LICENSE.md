@@ -1,4 +1,4 @@
-# 
+# Premium momentum trading bot flux de travail for Mac OS | Élite momentum trading bot flux de travail for PC Windows. Featuring API d'échange centralisé and trading de contrats à terme — optimized for maximum performance.
 
 
 
